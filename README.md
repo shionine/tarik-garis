@@ -1,2 +1,0 @@
-# tarik-garis
-b
